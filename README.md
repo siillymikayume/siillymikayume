@@ -1,7 +1,7 @@
 
 <p align="center">
 <img
-src="https:ibb.co/9mbsz2H6" "width:800"/>
+<img width="1500" height="500" alt="Untitled456-20260330144554" src="https://github.com/user-attachments/assets/ee718c75-41c0-4bfa-a2fc-443e247a9151" />
 </p>
 
 
@@ -14,3 +14,4 @@ src="https:ibb.co/9mbsz2H6" "width:800"/>
 <p align="center">
 <a href="https://www.instagram.com/maybe.daily.mika?igsh=MWRvZTFrcnVxM2t5cg==">♡~ instagram</a>
 </p>
+
