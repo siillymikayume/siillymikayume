@@ -28,8 +28,10 @@
   <img width="640" height="45" alt="Untitled457-20260330145517" src="https://github.com/user-attachments/assets/94cab9e2-832b-45d3-bf87-a7f51cf97c13" />
         <p align="center">
          ୨୧ 𝗗𝗡𝗜 ୨୧
-         <p align="center">
+ <p align="center">
           ୨୧ Doubles, mean for no reason, too involved in politics, overly sensitive or insensitive, ppl who dont respect my ships, "cut deeper" people ୨୧
+   <p align="center">
+    ୨୧ !!SPECIALLY!! If you follow/interact with my groomer Ash (formerly known as @/shumika.sillies.perhaps.daily), they dated me when i was 14 and they were 18! ୨୧
         <p align="center">
 <img width="115" height="166" alt="image" src="https://github.com/user-attachments/assets/def67146-486f-437a-9a46-9dc2e1c4d072" />
 
