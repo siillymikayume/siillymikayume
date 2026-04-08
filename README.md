@@ -7,7 +7,7 @@
 <p align="center">
 ୨୧ 𝗠𝘆𝘀𝗲𝗹𝗳 ୨୧
   <p align="center">
-     ୨୧ My name is Sukai ୨୧ I am 16 years old (april 7th) ୨୧ Mika Kagehira Non-sharing Gachikoi (MikaPs can interact) ୨୧
+     ୨୧ My name is Sukai ୨୧ I am 17 years old (april 7th) ୨୧ Mika Kagehira Non-sharing Gachikoi (MikaPs can interact) ୨୧
     <p align="center">
        ୨୧ I have BPD and social anxiety, so be patient with me! ୨୧ Basic DNI criteria ୨୧ I dont mention edtwt to those uncomfortable with it ୨୧
       <p align="center">
