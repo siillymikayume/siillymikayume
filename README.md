@@ -31,7 +31,7 @@
  <p align="center">
           ୨୧ Doubles, mean for no reason, too involved in politics, overly sensitive or insensitive, ppl who dont respect my ships, "cut deeper" people ୨୧
    <p align="center">
-    ୨୧ !!SPECIALLY!! If you follow/interact with my groomer Ash (formerly known as @/shumika.sillies.perhaps.daily), they dated me when i was 14 and they were 18! ୨୧
+    ୨୧ !!SPECIALLY!! If you follow/interact with my groomer Ash (formerly known as @/shumika.sillies.perhaps.daily)! ୨୧
         <p align="center">
 <img width="115" height="166" alt="image" src="https://github.com/user-attachments/assets/def67146-486f-437a-9a46-9dc2e1c4d072" />
 
