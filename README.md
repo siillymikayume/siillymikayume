@@ -13,7 +13,7 @@
       <p align="center">
         ୨୧ Medias I like: Limbus Company, Ensemble Stars, Umamusume, Needy Streamer Overload
          <p align="center">
-        ୨୧ Favs of each media: Sinclair, Don Quixote, Mika Kagehira, Shu Itsuki, Vodka, Sirius Symboli <sub>(i love my fp she likes sirius)</sub>, Ame-chan, P-chan
+        ୨୧ Favs of each media: Sinclair, Don Quixote, Mika Kagehira, Shu Itsuki, Vodka, Sirius Symboli, Ame-chan, P-chan
 <p align="center">
   <img width="640" height="45" alt="Untitled457-20260330145517" src="https://github.com/user-attachments/assets/94cab9e2-832b-45d3-bf87-a7f51cf97c13" />
   <p align="center">
