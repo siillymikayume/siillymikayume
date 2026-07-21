@@ -14,7 +14,7 @@ he◞ him <img width="16" height="16" alt="tumblr_inline_mkhtfarfLP1qz4rgp" src=
 <img width="16" height="16" alt="tumblr_lm6pl8iEtx1qfoi4t540" src="https://github.com/user-attachments/assets/cae335ed-5b1b-4400-b32f-79930ceb1086" /> ⏔⏔⏔⏔<img width="16" height="16" alt="tumblr_inline_mkhtfarfLP1qz4rgp" src="https://github.com/user-attachments/assets/483eddfa-894f-48d9-9437-b990910e653b" />⏔⏔⏔⏔<img width="16" height="16" alt="tumblr_inline_mkhtfarfLP1qz4rgp" src="https://github.com/user-attachments/assets/483eddfa-894f-48d9-9437-b990910e653b" />⏔⏔⏔⏔<img width="16" height="16" alt="tumblr_inline_mkhtfarfLP1qz4rgp" src="https://github.com/user-attachments/assets/483eddfa-894f-48d9-9437-b990910e653b" />⏔⏔⏔⏔ <img width="16" height="16" alt="tumblr_lm6pl8iEtx1qfoi4t540" src="https://github.com/user-attachments/assets/cae335ed-5b1b-4400-b32f-79930ceb1086" /> 
  <p align="center">
 <img width="16" height="16" alt="tumblr_ltsfswn7kZ1r1b4vq540" src="https://github.com/user-attachments/assets/a6e124fa-3dc8-4d21-baec-889dc8be2f72" /> <a href="https://sukai.atabook.org/"> atabook </a> <img width="16" height="16" alt="tumblr_ltsfswn7kZ1r1b4vq540" src="https://github.com/user-attachments/assets/a6e124fa-3dc8-4d21-baec-889dc8be2f72" /> <a href="https://sukaiii.carrd.co"> carrd </a> <img width="16" height="16" alt="tumblr_ltsfswn7kZ1r1b4vq540" src="https://github.com/user-attachments/assets/a6e124fa-3dc8-4d21-baec-889dc8be2f72" />
+ <p align="center">
+<img src="https://komarev.com/ghpvc/?username=siillymikayume&color=red&label=Wabirulings" alt="Wabirulings" />
 <p align="center">
 <sub>Art by Utahyaya on Twitter!</sub>
- 
-
